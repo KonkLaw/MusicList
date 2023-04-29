@@ -1,20 +1,17 @@
 
 ##### Sorted
 
-[Bob Sinclar - World Hold On](https://youtu.be/ZR3xfEEKsJ4)
+Bob Sinclar [World Hold On](https://youtu.be/ZR3xfEEKsJ4)
 
-[Enigma - Push The Limits](https://youtu.be/S29GrVANbHM)
+Enigma [Push The Limits](https://youtu.be/S29GrVANbHM)
 
-Faithless
-	[Faithless - Insomnia](https://youtu.be/P8JEm4d6Wu4)
+Faithless [Insomnia](https://youtu.be/P8JEm4d6Wu4) ...
 
-Groove Armada
-	[Groove Armada - Get Down](https://youtu.be/YSg9Y-16fl4)
-	[Groove Armada - Superstylin'](https://youtu.be/_kE0pxRkMtQ)
+Groove Armada [Get Down](https://youtu.be/YSg9Y-16fl4),	[Superstylin'](https://youtu.be/_kE0pxRkMtQ) ...
 
-[Keane - Crystal Ball](https://youtu.be/xEHy0QwvAYE)
+Keane [Crystal Ball](https://youtu.be/xEHy0QwvAYE)
 
-[The Verve - Bitter Sweet Symphony](https://youtu.be/1lyu1KKwC74)
+The Verve [Bitter Sweet Symphony](https://youtu.be/1lyu1KKwC74)
 
 
 ________________
