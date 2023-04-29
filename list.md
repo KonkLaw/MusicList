@@ -19,102 +19,95 @@ ________________
 ##### To sort
 
 50 cent
+
 ATB
+
 BloodHangGang
+
 Beasty Boys
+
 Boney M
 	Sunny
+
 Chemical Brothers
+
 Coldplay
+
 Creadence
+
 CypersHills
-Depeche Mode 
-	[Depeche Mode - Freelove (Official Video)](https://m.youtube.com/watch?v=xZ3nJ6KhWOo) 
-	[Depeche Mode - Enjoy The Silence (Official Video)](https://www.youtube.com/watch?v=aGSKrC7dGcY) 
-	[Depeche Mode - John the Revelator (Official Video)](https://www.youtube.com/watch?v=BZ_HhwnIOV8) 
-	[Depeche Mode - Precious (Official Video)](https://www.youtube.com/watch?v=8yn3ViE6mhY&list=OLAK5uy_n0YJXembtxaUtj1DKquxLl-FM8kYeMASo&index=10) 
-	[Depeche Mode - Personal Jesus (Official Video)](https://www.youtube.com/watch?v=u1xrNaTO1bI) 
-	[Depeche Mode - Walking In My Shoes (Official Video)](https://www.youtube.com/watch?v=GrC_yuzO-Ss&list=OLAK5uy_n0YJXembtxaUtj1DKquxLl-FM8kYeMASo&index=14) 
-	[Depeche Mode - Suffer Well (Official Video)](https://www.youtube.com/watch?v=SsKyxkfj8ak&list=OLAK5uy_n0YJXembtxaUtj1DKquxLl-FM8kYeMASo&index=31) 
-	[Depeche Mode - Useless (Official Video)](https://www.youtube.com/watch?v=U2Kyu4XURaE&list=OLAK5uy_n0YJXembtxaUtj1DKquxLl-FM8kYeMASo&index=51) 
-	[Depeche Mode - Martyr (Official Video)](https://www.youtube.com/watch?v=_13HIbvIjnU&list=OLAK5uy_n0YJXembtxaUtj1DKquxLl-FM8kYeMASo&index=78) 
-	[Depeche Mode - Should Be Higher (2013)](https://www.youtube.com/watch?v=am-eSa9QTBg) 
+
+Depeche Mode [Freelove](https://youtu.be/xZ3nJ6KhWOo), [Enjoy The Silence](https://youtu.be/aGSKrC7dGcY), [John the Revelator](https://youtu.be/BZ_HhwnIOV8), [Precious](https://youtu.be/8yn3ViE6mhY), [Personal Jesus](https://youtu.be/u1xrNaTO1bI), [Walking In My Shoes](https://youtu.be/GrC_yuzO-Ss), [Suffer Well](https://youtu.be/SsKyxkfj8ak), [Useless](https://youtu.be/U2Kyu4XURaE), [Martyr](https://youtu.be/_13HIbvIjnU), [Should Be Higher](https://youtu.be/am-eSa9QTBg), ...
+
 Dj Shadow
+
 Eminem
+
 Fat Boy Slim
-Faithless
-	[Faithless - Why Go? (Official Video) ft. Estelle](https://www.youtube.com/watch?v=nUDXUeI6KF8)
-	[Faithless - We Come 1 (Official Video)](https://www.youtube.com/watch?v=65EfTFUFDwI) 
-	...
-Gorillaz 
-	[https://www.youtube.com/watch?v=HyHNuVaZJ-k](https://www.youtube.com/watch?v=HyHNuVaZJ-k) 
-	[Gorillaz - Dirty Harry (Official Video)](https://www.youtube.com/watch?v=cLnkQAeMbIM) 
-	[Gorillaz - Feel Good Inc. (Official Video)](https://www.youtube.com/watch?v=HyHNuVaZJ-k)
-	... 
-Groove Armada
+
+Faithless [Why Go? (ft. Estelle)](https://youtu.be/nUDXUeI6KF8), [We Come 1](https://youtu.be/65EfTFUFDwI), ...
+
+Gorillaz [Feel Good Inc.](https://youtu.be/HyHNuVaZJ-k), [Dirty Harry](https://youtu.be/cLnkQAeMbIM), ... 
+
+Groove Armada ...
+
 Jimmy Rock Way
+
 Korn
-Led zeppelin
-	Starway to heaven
-Matafix 
-	[Mattafix - To & Fro](https://www.youtube.com/watch?v=TKvBN9A_JOM) 
-	https://youtu.be/O3bHNlwmIKM
-	...
-Massive Attack ([от Фадеева](https://youtu.be/ZINRGIthARk?t=43)) 
-	[Massive Attack - Teardrop (Official Video)](https://www.youtube.com/watch?v=u7K72X4eo_s) 
-	[Massive Attack - Angel](https://www.youtube.com/watch?v=hbe3CQamF8k) 
-	[Massive Attack - Live With Me](https://www.youtube.com/watch?v=AIIovpUQiro) 
-	[Massive Attack - Safe From Harm](https://www.youtube.com/watch?v=PKtTmZnVhhI) 
-	[Massive Attack - False Flags](https://www.youtube.com/watch?v=DilYs7scIgU) 
-	[Massive Attack - Special Cases](https://www.youtube.com/watch?v=OQ31yNp6Nao) 
-	[UNKLE - Be There](https://www.youtube.com/watch?v=kUubW5szdwA) 
-	Rabbit in your … 
+
+Led Zeppelin Starway to Heaven
+
+Matafix [To & Fro](https://youtu.be/TKvBN9A_JOM), [Big City Life](https://youtu.be/O3bHNlwmIKM), ...
+
+Massive Attack [Teardrop](https://youtu.be/u7K72X4eo_s), [Angel](https://youtu.be/hbe3CQamF8k), [Live With Me](https://youtu.be/AIIovpUQiro), [Safe From Harm](https://youtu.be/PKtTmZnVhhI), [False Flags](https://youtu.be/DilYs7scIgU), [Special Cases](https://youtu.be/OQ31yNp6Nao), ...
+
 Meuse
-Moby
-	[https://www.youtube.com/watch?v=SC6-TiN19uE](https://www.youtube.com/watch?v=SC6-TiN19uE) 
-	[https://www.youtube.com/watch?v=5wrwcEZ3Btw](https://www.youtube.com/watch?v=5wrwcEZ3Btw) 
-	[Moby 'In This World' - Official video](https://www.youtube.com/watch?v=5wrwcEZ3Btw) 
-	...
+
+Moby [In This World](https://youtu.be/5wrwcEZ3Btw), [Natural Blues (ft. Christina Ricci)](https://youtu.be/SC6-TiN19uE), ...
+
 Nas
 	Nas - Hip hop is dead
-Nelly Furtado
-	https://youtu.be/6JnGBs88sL0
+	...
+
+Nelly Furtado [Say It Right](https://youtu.be/6JnGBs88sL0)
+
 Nick Cave
-Nirvana 
-	Come as You Are 
-	Smells Like Teen Spirit 
-	...
-Pink Floyd 
-	The wall 
-	...
+
+Nirvana Come as You Are, Smells Like Teen Spirit, ...
+
+Pink Floyd The wall, ...
+
 Paule OakenFold
-Placebo
-	[Placebo - Song To Say Goodbye](https://www.youtube.com/watch?v=e7bxXjQL3cY) 
-Prodigy 
-	[The Prodigy - Voodoo People (Pendulum Remix)](https://www.youtube.com/watch?v=XQEBzauVIlA) 
-	...
+
+Placebo [Song To Say Goodbye](https://youtu.be/e7bxXjQL3cY) 
+
+Prodigy [Voodoo People](https://youtu.be/XQEBzauVIlA), ...
+
 Ramstein
-Roiscope
-	What Else is there
-Rolling stones 
-	[https://www.youtube.com/watch?v=tJHnsz2NOfg](https://www.youtube.com/watch?v=tJHnsz2NOfg) 
-	[https://www.youtube.com/watch?v=BinwuzZVjnE](https://www.youtube.com/watch?v=BinwuzZVjnE) 
-	[The Rolling Stones - Rain Fall Down - OFFICIAL PROMO](https://www.youtube.com/watch?v=tJHnsz2NOfg) 
-	[The Rolling Stones - Anybody Seen My Baby - OFFICIAL PROMO](https://www.youtube.com/watch?v=BinwuzZVjnE) 
+
+Red Hot Chilly Papers
+
+Roiscope What Else is there
+
+Rolling Stones [Rain Fall Down](https://youtu.be/tJHnsz2NOfg), [Anybody Seen My Baby](https://youtu.be/BinwuzZVjnE), ...
+
 Sleep Knot
-System of a down
-	[System Of A Down - Chop Suey! (Official Video)](https://youtu.be/CSvFpBOe8eY) 
-	[System Of A Down - Aerials (Official Video)](https://youtu.be/L-iepu3EtyE) 
-Tiesto
-	Do you feel me
-	[Tiësto - Dance4Life](https://www.youtube.com/watch?v=yT27MHg5Hls) 
-Unkle 
+
+System Of A Down [Chop Suey! (Official Video)](https://youtu.be/CSvFpBOe8eY), [Aerials)](https://youtu.be/L-iepu3EtyE) 
+
+Tiesto Do you feel me, [Dance4Life](https://youtu.be/yT27MHg5Hls) 
+
+Unkle [Be There](https://youtu.be/kUubW5szdwA), Rabbit in your, …
+
 ТОЛ
 
 
+
+
+https://www.youtube.com/watch?v=ZINRGIthARk&t=43s
 
 ---
 
 #####  Other
 
-[Stuck In the Sound - Let's Go](https://youtu.be/52Gg9CqhbP8)
+Stuck In the Sound [Let's Go](https://youtu.be/52Gg9CqhbP8)
