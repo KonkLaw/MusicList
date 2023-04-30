@@ -7,7 +7,7 @@ Enigma [Push The Limits](https://youtu.be/S29GrVANbHM)
 
 Faithless [Insomnia](https://youtu.be/P8JEm4d6Wu4) ...
 
-Groove Armada [Get Down](https://youtu.be/YSg9Y-16fl4),	[Superstylin'](https://youtu.be/_kE0pxRkMtQ) ...
+Groove Armada [Get Down](https://youtu.be/YSg9Y-16fl4)  |  [Superstylin'](https://youtu.be/_kE0pxRkMtQ) ...
 
 Keane [Crystal Ball](https://youtu.be/xEHy0QwvAYE)
 
@@ -26,8 +26,7 @@ BloodHangGang
 
 Beasty Boys
 
-Boney M
-	Sunny
+Boney M Sunny
 
 Chemical Brothers
 
@@ -37,7 +36,7 @@ Creadence
 
 CypersHills
 
-Depeche Mode [Freelove](https://youtu.be/xZ3nJ6KhWOo), [Enjoy The Silence](https://youtu.be/aGSKrC7dGcY), [John the Revelator](https://youtu.be/BZ_HhwnIOV8), [Precious](https://youtu.be/8yn3ViE6mhY), [Personal Jesus](https://youtu.be/u1xrNaTO1bI), [Walking In My Shoes](https://youtu.be/GrC_yuzO-Ss), [Suffer Well](https://youtu.be/SsKyxkfj8ak), [Useless](https://youtu.be/U2Kyu4XURaE), [Martyr](https://youtu.be/_13HIbvIjnU), [Should Be Higher](https://youtu.be/am-eSa9QTBg), ...
+Depeche Mode [Freelove](https://youtu.be/xZ3nJ6KhWOo)  |  [Enjoy The Silence](https://youtu.be/aGSKrC7dGcY)  |  [John the Revelator](https://youtu.be/BZ_HhwnIOV8)  |  [Precious](https://youtu.be/8yn3ViE6mhY)  |  [Personal Jesus](https://youtu.be/u1xrNaTO1bI) | [Walking In My Shoes](https://youtu.be/GrC_yuzO-Ss) | [Suffer Well](https://youtu.be/SsKyxkfj8ak) | [Useless](https://youtu.be/U2Kyu4XURaE), [Martyr](https://youtu.be/_13HIbvIjnU) |  ...
 
 Dj Shadow
 
@@ -45,9 +44,9 @@ Eminem
 
 Fat Boy Slim
 
-Faithless [Why Go? (ft. Estelle)](https://youtu.be/nUDXUeI6KF8), [We Come 1](https://youtu.be/65EfTFUFDwI), ...
+Faithless [Why Go? (ft. Estelle)](https://youtu.be/nUDXUeI6KF8)  | [We Come 1](https://youtu.be/65EfTFUFDwI)  | ...
 
-Gorillaz [Feel Good Inc.](https://youtu.be/HyHNuVaZJ-k), [Dirty Harry](https://youtu.be/cLnkQAeMbIM), ... 
+Gorillaz [Feel Good Inc.](https://youtu.be/HyHNuVaZJ-k)  |  [Dirty Harry](https://youtu.be/cLnkQAeMbIM), ... 
 
 Groove Armada ...
 
@@ -59,15 +58,13 @@ Led Zeppelin Starway to Heaven
 
 Matafix [To & Fro](https://youtu.be/TKvBN9A_JOM), [Big City Life](https://youtu.be/O3bHNlwmIKM), ...
 
-Massive Attack [Teardrop](https://youtu.be/u7K72X4eo_s), [Angel](https://youtu.be/hbe3CQamF8k), [Live With Me](https://youtu.be/AIIovpUQiro), [Safe From Harm](https://youtu.be/PKtTmZnVhhI), [False Flags](https://youtu.be/DilYs7scIgU), [Special Cases](https://youtu.be/OQ31yNp6Nao), ...
+Massive Attack [Teardrop](https://youtu.be/u7K72X4eo_s)  |  [Angel](https://youtu.be/hbe3CQamF8k)  |  [Live With Me](https://youtu.be/AIIovpUQiro)  |  [Safe From Harm](https://youtu.be/PKtTmZnVhhI)  |  [False Flags](https://youtu.be/DilYs7scIgU), [Special Cases](https://youtu.be/OQ31yNp6Nao)  |  ...
 
 Meuse
 
 Moby [In This World](https://youtu.be/5wrwcEZ3Btw), [Natural Blues (ft. Christina Ricci)](https://youtu.be/SC6-TiN19uE), ...
 
-Nas
-	Nas - Hip hop is dead
-	...
+Nas Hip hop is dead  |  ...
 
 Nelly Furtado [Say It Right](https://youtu.be/6JnGBs88sL0)
 
@@ -89,11 +86,11 @@ Red Hot Chilly Papers
 
 Roiscope What Else is there
 
-Rolling Stones [Rain Fall Down](https://youtu.be/tJHnsz2NOfg), [Anybody Seen My Baby](https://youtu.be/BinwuzZVjnE), ...
+Rolling Stones [Rain Fall Down](https://youtu.be/tJHnsz2NOfg)  |  [Anybody Seen My Baby](https://youtu.be/BinwuzZVjnE), ...
 
 Sleep Knot
 
-System Of A Down [Chop Suey! (Official Video)](https://youtu.be/CSvFpBOe8eY), [Aerials)](https://youtu.be/L-iepu3EtyE) 
+System Of A Down [Chop Suey! (Official Video)](https://youtu.be/CSvFpBOe8eY)  |  [Aerials](https://youtu.be/L-iepu3EtyE)  |   
 
 Tiesto Do you feel me, [Dance4Life](https://youtu.be/yT27MHg5Hls) 
 
@@ -103,11 +100,13 @@ Unkle [Be There](https://youtu.be/kUubW5szdwA), Rabbit in your, …
 
 
 
-
-https://www.youtube.com/watch?v=ZINRGIthARk&t=43s
-
 ---
+
+
 
 #####  Other
 
+About Massive Attack [link](https://youtu.be/ZINRGIthARk?t=43) and clips [link](https://youtu.be/YQRmaQ14-LA?t=2104)
+
 Stuck In the Sound [Let's Go](https://youtu.be/52Gg9CqhbP8)
+[Should Be Higher](https://youtu.be/am-eSa9QTBg)
